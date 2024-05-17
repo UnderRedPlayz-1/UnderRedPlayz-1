@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @UnderRedPlayz but you can call me Red.
 - 👀 I’m interested in coding (kinda), playing games of all kinds.
-- 🌱 I’m currently learning nothing.
+- 🌱 I’m currently learning nothing coding related, but I am learning Ukrainian 🇺🇦
 - 💞️ I’m looking to collaborate on nothing atm.
 - 📫 How to reach me Discord: underredplayz
 - 😄 Pronouns: She/her
